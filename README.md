@@ -1,1 +1,0 @@
-# www.i7tiraf-ar.blogspot.com
